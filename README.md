@@ -28,3 +28,10 @@ The KP781 treadmill is having advanced features that sell for USD 2,500.
 ![image](https://github.com/user-attachments/assets/6cf40f43-301b-459b-a2f3-5b6e227f6906)
 
 
+![image](https://github.com/user-attachments/assets/b5238244-d2c5-431e-8bda-8760ea4f9f04)
+
+![image](https://github.com/user-attachments/assets/f7dce58e-e174-4c8b-9543-1a4b1640de28)
+
+![image](https://github.com/user-attachments/assets/42f7cab0-eb14-4306-901f-4b2797d7d43f)
+
+
